@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @PerlaGuadalupe,  estudiante de la carrera administracion y gestion empresarial.
-- 👀 I’m interested in ... trabajar con esta plataforma,  aprender conceptos y herramientas nuevas para incluirlas en mi vida diaria.
-- 🌱 I’m currently  tratando y esforzandome  en dominar ingles
-- 💞️ I’m looking to collaborate on alguna empresa para  poder apoyar en lo mas que pueda,  aportar y aplicar todos mis conocimientos y experiencia para poder  logrear un gran equip- 📫 How to reach me ... Correo: perla.villa@alumnos.udg.mx
-perlissrosales@gmail.com
+- 👋 Hi, I’m Perla Villa, student of the administration and business management career.
+- 👀 I’m interested in work with this platform, learn new concepts and tools to include them in my daily life.
+- 🌱 I’m currently trying and trying to master English.
+- 💞️ I’m looking to collaborate with some company to be able to support as much as I can, contribute and apply all my knowledge and experience to be able to achieve a great team
+- 📫 How to reach me ... Correo: perla.villa4527@alumnos.udg.mx/perlissrosales@gmail.com
 
 <!---
 PerlaGuadalupeVill/PerlaGuadalupeVill is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
